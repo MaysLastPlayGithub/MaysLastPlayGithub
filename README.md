@@ -6,5 +6,5 @@
 - You can Ask me to port almost any open source mod or not open source (if i want)
 - I'm learning Haxe And Java
 - How to reach me: My Discord: MaysLastPlayシ#3403 
-- If you want to see me on YouTube: [My YouTube channel](https://youtube.com/c/MaysLastPlay0)
+- If you want to see me on My YouTube [Channel](https://youtube.com/c/MaysLastPlay0)
 
