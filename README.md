@@ -9,5 +9,5 @@
 - Coding Many Mods 
 - How to reach me: My Discord: MaysLastPlayシ#3403 
 - If you want to see me on My [YouTube Channel](https://youtube.com/c/MaysLastPlay0)
-- [My Discord](https://discord.gg/UeKQMrzKas), join if you want
+- [My Discord](https://discord.gg/UeKQMrzKas), join if you want:D
 
